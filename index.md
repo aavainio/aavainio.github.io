@@ -16,4 +16,6 @@
 
 [Shaggy](https://www.roblox.com/catalog/20573078/Shaggy)
 
+[Red Baseball Cap](https://www.roblox.com/catalog/1028606/Red-Baseball-Cap)
+
 
