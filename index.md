@@ -8,4 +8,6 @@
 
 [Kuddle E. Koala](https://www.roblox.com/catalog/44113968/Kuddle-E-Koala)
 
+[Portrait of a Hero in ROBLOX](https://www.roblox.com/catalog/331486631/Portrait-of-a-Hero-in-ROBLOX)
+
 
