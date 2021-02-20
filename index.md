@@ -12,4 +12,6 @@
 
 [Charles Babbage Fabergé Egg](https://www.roblox.com/catalog/76692101/Charles-Babbage-Faberg-Egg)
 
+[Explosive Egg of Kaboom!](https://www.roblox.com/catalog/24826755/Explosive-Egg-of-Kaboom)
+
 
