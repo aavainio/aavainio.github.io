@@ -7,6 +7,7 @@
 ### Markdown
 
 
+![Image](https://user-images.githubusercontent.com/37746191/108605140-fd8e3a00-73ba-11eb-80bc-4e2dfe53eb04.png)
 
 ```markdown
 Syntax highlighted code block
