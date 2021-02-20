@@ -6,4 +6,6 @@
 
 [Halloween Baseball Cap 2014](https://www.roblox.com/catalog/184745025/Halloween-Baseball-Cap-2014)
 
+[Kuddle E. Koala](https://www.roblox.com/catalog/44113968/Kuddle-E-Koala)
+
 
