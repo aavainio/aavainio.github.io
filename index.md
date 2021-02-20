@@ -14,4 +14,6 @@
 
 [Explosive Egg of Kaboom!](https://www.roblox.com/catalog/24826755/Explosive-Egg-of-Kaboom)
 
+[Shaggy](https://www.roblox.com/catalog/20573078/Shaggy)
+
 
