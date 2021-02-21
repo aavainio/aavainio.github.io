@@ -7,6 +7,7 @@
 <form>
   Haku
   <input type="text">
+  <input type="submit" value="search">
 </form>
 
 ### Accessories
