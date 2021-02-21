@@ -40,6 +40,8 @@
 
 [Blue Pocket Pal](https://www.roblox.com/catalog/658757624/Blue-Pocket-Pal)
 
+[Chrome EEgg of Speeding Bullet](https://www.roblox.com/catalog/24826640/Chrome-Egg-of-Speeding-Bullet)
+
 
 
 
