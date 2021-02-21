@@ -18,4 +18,12 @@
 
 [Red Baseball Cap](https://www.roblox.com/catalog/1028606/Red-Baseball-Cap)
 
+[Noob Attack: Pirate Peril](https://www.roblox.com/catalog/1241224444/Noob-Attack-Pirate-Peril)
+
+[Wild West Santa](https://www.roblox.com/catalog/19296155/Wild-West-Santa)
+
+
+
+
+
 
