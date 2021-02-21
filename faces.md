@@ -4,3 +4,5 @@
 
 [Manicbot 10000](https://www.roblox.com/catalog/554663566/Manicbot-10000)
 
+[Golden Evil Eye](https://www.roblox.com/catalog/1016185809/Golden-Evil-Eye)
+
