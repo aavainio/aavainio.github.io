@@ -22,6 +22,20 @@
 
 [Wild West Santa](https://www.roblox.com/catalog/19296155/Wild-West-Santa)
 
+[Bat Tie](https://www.roblox.com/catalog/63239668/Bat-Tie)
+
+[AmeriPhones](https://www.roblox.com/catalog/55224802/AmeriPhones)
+
+[Festive Narwhal](https://www.roblox.com/catalog/140469731/Festive-Narwhal)
+
+[Rusty Tetramino of Competence](https://www.roblox.com/catalog/5785985/Rusty-Tetramino-of-Competence)
+
+[Silver Tetramino of Accomplishment](https://www.roblox.com/catalog/5786026/Silver-Tetramino-of-Accomplishment)
+
+[Gold Tetramino of Mastery](https://www.roblox.com/catalog/5786047/Gold-Tetramino-of-Mastery)
+
+
+
 
 
 
