@@ -34,6 +34,8 @@
 
 [Gold Tetramino of Mastery](https://www.roblox.com/catalog/5786047/Gold-Tetramino-of-Mastery)
 
+[Blue Pocket Pal](https://www.roblox.com/catalog/658757624/Blue-Pocket-Pal)
+
 
 
 
