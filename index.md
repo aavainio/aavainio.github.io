@@ -42,7 +42,7 @@
 
 [Chrome Egg of Speeding Bullet](https://www.roblox.com/catalog/24826640/Chrome-Egg-of-Speeding-Bullet)
 
-[Porple Crazy Glasses](https://www.roblox.com/catalog/243854130/Purple-Crazy-Glasses)
+[Purple Crazy Glasses](https://www.roblox.com/catalog/243854130/Purple-Crazy-Glasses)
 
 
 
