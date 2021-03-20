@@ -1,6 +1,4 @@
-## 
-
-<iframe width="560" height="315" src="https://www.youtube.com/embed/FQTFZEpFmxc" frameborder="0" allow="autoplay; encrypted-media" allowfullscreen></iframe>
+## NideTo Download
 
 
-
+[CLICK HERE TO DOWNLOAD](https://raw.githubusercontent.com/aavainio/store-tycoon/main/laskut.py?token=AI77MDYASDH6O3JQMDX6IEDAKYLLU)
